@@ -8,7 +8,7 @@
 |__DAY 5__| On the fifth day of induction program we had some activities related to quantative aptitude and english vocabulary. On this day we also had group discussion.
 |__DAY 6__| On the sixth day we attended our MATHS classes at WORKSHOP HALL. after this we headed to ME SEMINAR HALL to attend UNIVERSAL HUMAN VALUES CLASS.
 |__DAY 7__| On the seventh day of induction program we attended the maths class. After that we had our UNIVERSAL HUMAN VALUES and we were given an assignment by the teacher which we are required to submit as soon as possible. Then we had our ENLISH TEST.
-|__DAY 8__| On the eigthth day of our induction program we first attended the UNIVERSAL HUMAN CLASSES in the morning. After that we had peer intereaction they taught us the basic of CANVA and taught us to create templates. In the afternoon, DR. HARWINDER SINGH motivated us to join NCC(NATIONAL CADET CORPS). Then Er.JASVIR SINGH GREWAL coordinator of NSS motivated us to join NSS. It was a nice day as we saw our campus more deeply.
+|__DAY 8__| On the eigthth day of our induction program we first attended the UNIVERSAL HUMAN CLASSES in the morning. After that we had peer intereaction they taught us the basic of CANVA and taught us to create templates. In the afternoon, DR. HARWINDER SINGH motivated us to join NCC(NATIONAL CADET CORPS). Then Er.JASVIR SINGH GREWAL coordinator of NSS motivated us to join NSS. It was a nice day as we saw our campus more deeply..
  
 
 

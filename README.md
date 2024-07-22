@@ -1,4 +1,4 @@
-ji# DIVYANSH-GI.github.io
+# DIVYANSH-GI.github.io
 # ACTIVITY REPORT OF INDUCTION PROGRAM
 
 | __DAY 1__ | (DATE -10.JULY.2024) .On the very first day of induction program. we first visited gurudwara sahib all students were go to gurudwara sahib which is situated in our college . In  the gurudwara there was a kirtan and ardaas . Me and my friends enjoy our first day in the college . After ardaas thera was a Refreshments. and then we all are go to college auditorium and we get a chance to know a lot of about of the college. we get to know about the contribution of our college in various field of our country. we were lucky to get a chance to listen to diginatries invited by the college. ![GNDEC COLLEGE](https://upload.wikimedia.org/wikipedia/commons/1/12/Guru_Nanak_Dev_Engineering_College,_Ludhiana,_Punjab,_India_04.jpg)

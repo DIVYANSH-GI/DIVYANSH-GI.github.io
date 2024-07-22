@@ -9,7 +9,7 @@
 |__DAY 6__| On the sixth day we attended our MATHS classes at WORKSHOP HALL. after this we headed to ME SEMINAR HALL to attend UNIVERSAL HUMAN VALUES CLASS. This is very good lecture.
 |__DAY 7__| On the seventh day of induction program we attended the maths class. After that we had our UNIVERSAL HUMAN VALUES and we were given an assignment by the teacher which we are required to submit as soon as possible. It was basically a subject in which we learn about the universal human values . Then we had our ENLISH TEST. The test was surprise test . The college members gives us 1 hour for the preparation. We do preperation Then the test was start . The test was very good . The test Contains a very good question. We are very happy to give our first test in our college.
 |__DAY 8__| On the eigthth day of our induction program we first attended the UNIVERSAL HUMAN CLASSES in the morning. After that we had peer intereaction they taught us the basic of CANVA and taught us to create templates. In the afternoon, DR. HARWINDER SINGH motivated us to join NCC(NATIONAL CADET CORPS). Then Er.JASVIR SINGH GREWAL coordinator of NSS motivated us to join NSS. It was a nice day as we saw our campus more deeply.
- 
+| __DAY 9__ | On the Nineth day our both lecturs was in the auditorium . Our college start on 9 am sharp . We all went to college at 9 am . And when we 
 
 
 
